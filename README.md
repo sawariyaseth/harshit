@@ -38,8 +38,8 @@
 ---
 
 ## 🌐 Connect With Me
-- 📧 Email: *add here*
-- 💼 LinkedIn: *add here*
+- 📧 Email: *Radhakrishna1kr@gmail.com*
+- 💼 LinkedIn: **
 
 ---
 
